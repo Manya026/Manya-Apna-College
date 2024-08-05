@@ -1,2 +1,2 @@
-# Manya-Apna-college
+# Manya-Apna-College
 Author-Manya
